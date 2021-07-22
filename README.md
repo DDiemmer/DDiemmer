@@ -9,4 +9,4 @@ Who Am I ?
 I really love 💓:
 - 🧬 Science
 - 🎮 Games
-- 📖 Learn..."benkyou..benkyou..benkyou".
+- 📖 Learn..."(勉強する)benkyou..benkyou..benkyou".
